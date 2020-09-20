@@ -1,1 +1,0 @@
-# giorizz.github.io
